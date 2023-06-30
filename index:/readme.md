@@ -1,0 +1,1 @@
+- [How To Start Your Own AI Automation Agency (Mini-Course)](https://youtu.be/Hm5DynTBwuM)
